@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Giselmaldonado
-- 👀 I’m interested in psychology, programming, and food
+- 👀 I’m interested in psychology, programming, and friendliness
 - 🌱 I’m currently learning with help from Promineo Tech 
 - 📫 How to reach me maldonadogisel@yahoo.com
 - 💞️ Pronouns (She/Her)
